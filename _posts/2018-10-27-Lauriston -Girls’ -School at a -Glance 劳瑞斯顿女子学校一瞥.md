@@ -53,9 +53,10 @@ The Howqua program is designed to build students’ independence, strength and r
 
 ![](https://farm2.staticflickr.com/1961/44679141605_466d7e62f6_o.jpg)
 
-![](https://farm2.staticflickr.com/1980/44868210794_a9012dee39_o.jpg)
+![](https://farm2.staticflickr.com/1934/44868728454_17b8b71fb5_o.jpg)
 
 
+[url=https://flic.kr/p/2bmTXLs][img]https://farm2.staticflickr.com/1934/44868728454_17b8b71fb5_o.jpg[/img][/url][url=https://flic.kr/p/2bmTXLs]Lauriston[/url] by [url=https://www.flickr.com/photos/167244593@N02/]B2SE Edu[/url], on Flickr
 	
 --------
 -- 明智教育咨询预约主页：[www.b2se.com](http://www.b2se.com)
