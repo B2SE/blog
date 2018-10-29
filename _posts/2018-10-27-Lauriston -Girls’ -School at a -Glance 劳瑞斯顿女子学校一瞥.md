@@ -47,7 +47,8 @@ The Howqua program is designed to build students’ independence, strength and r
 
 —
 
-关于B2SE明智教育对该校更进一步的观点、进一步的分析等，请私信我们。
+关于B2SE明智教育对该校更进一步的观点、进一步的分析，包括奖学金情况、学校的理念、Culture、优缺点等，请私信我们。
+
 
 ![](https://farm2.staticflickr.com/1962/44679147685_2d971c670b_o.jpg)
 
@@ -56,7 +57,6 @@ The Howqua program is designed to build students’ independence, strength and r
 ![](https://farm2.staticflickr.com/1934/44868728454_17b8b71fb5_o.jpg)
 
 
-[url=https://flic.kr/p/2bmTXLs][img]https://farm2.staticflickr.com/1934/44868728454_17b8b71fb5_o.jpg[/img][/url][url=https://flic.kr/p/2bmTXLs]Lauriston[/url] by [url=https://www.flickr.com/photos/167244593@N02/]B2SE Edu[/url], on Flickr
 	
 --------
 -- 明智教育咨询预约主页：[www.b2se.com](http://www.b2se.com)
