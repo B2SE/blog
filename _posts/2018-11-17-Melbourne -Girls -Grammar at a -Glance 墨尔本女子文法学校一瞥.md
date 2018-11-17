@@ -3,26 +3,26 @@ layout: post
 Description: 明智教育, 辅导，补习，老师，私校，公校, 大学选择，工作规划，从业规划，天才儿童是浮云，澳洲学生挫折教育，儿童空间推理，空间理解能力， 自我观对学习成绩的影响，Universities Selection, Career Education, Career Advisors, Guidance, Melbourne Private Schools, Selective Schools, Writing tutoring, Interviews tutoring, Resume Writing, Spatial skills, Failures help gifted children，Critical and creative thinking involves reasoning, using and analysing evidence, and applying knowledge to find creative solutions to complex problems；Verbal Reasoning, Decision Making, Quantitative Reasoning, Abstract Reasoning, Situational Judgement, self-concept and school results, school marks, gender differences in STEM subjects, 
 ---
 
-MGGS 墨尔本女子文法学校 自豪地拥有一百二十多年的历史，邻近中央商业区，对面就是墨尔本皇家植物园。虽离主要交通道路不远，但忙中取静。周边环境有一种富裕、宁静的气氛。公共交通比较便利，驾车会比较困难（繁忙时段路上会花费较长时间，停车位也不易）。
+MGGS 墨尔本女子文法学校 自豪地拥有一百二十多年的历史，邻近中央商业区，对面就是墨尔本皇家植物园。虽离主要交通道路不远，但忙中取静，周边环境有一种富裕、宁静的气氛。公共交通比较便利，驾车会比较困难（繁忙时段路上会花费较长时间，停车位也不易）。
 
 主校园 (MERTON HALL, Y5 - Y12) 面积不算大。ELC（3 - 4 岁的幼儿园）位于主校园后部，单独的门口并不大，显得很僻静。小学低年级在另一个校园（MORRIS HALL, Prep - Y4），步行即可来往。
 
-全校一共有接近950名学生（Prep - Y2）。小学阶段中途招生很少，Y3 有一些，Y5 增加22个（一个班），Y7 最多，增招60多人 （增加三个班）。
+全校一共有接近950名学生（Prep - Y12）。小学阶段中途招生很少，Y3 有一些，Y5 增加一个班，Y7 最多，增招60多人 （增加三个班）。
 
 主校园一进门是一座具有悠久历史的建筑，接待室空间并不大。一百多个座位的学生餐厅很有传统欧洲特色。对于85名住校生来说，这个欧洲文化色彩浓厚的餐厅是她们每日生活最熟悉的地方之一。
 
 多个建筑布满了不大的校园，既有古色古香的，也有不少明快现代的。利用错落的地形以及屋顶，还开辟了户外运动场地、露天多功能球场。但大面积操场的欠缺还是显而易见的。空间的最大化利用或许给人一种建筑物拥挤的感觉。
 
-图书馆、艺术楼、科学楼等等都很现代，并有一些贴心的设计。
+图书馆、艺术楼、科学楼等等都很现代，并有一些贴心的设计。学校礼堂不算出众。
 
-The Artemis Centre （运动+课外中心） 建成不久。泳池、室内篮球／Netball 场地（一个标准场）、健身房、攀爬活动室、其它空间（包括学习辅导室）等等都显得很新，很敞亮现代。据介绍，大型运动项目在周边的公园进行。学校在附近的 Yarra River 岸边还有划船运动的设施。学校礼堂不算出众。
+The Artemis Centre （运动+课外中心） 建成不久。泳池、室内篮球／Netball 场地（一个标准场）、健身房、攀爬活动室、其它空间（包括学习辅导室）等等都显得很新，很敞亮现代。据介绍，大型运动项目在周边的公园进行。学校在附近的 Yarra River 岸边还有划船运动的设施。
 
 在Prep - Year4 阶段，学校开设意大利语课。Y5 以上，语言课逐渐有更多的选择。
 
 Y7 开始，有数学方面的提高课。95% 的学生会在 VCE 阶段至少选一门数学。
 
 
-小学阶段贯彻工作室式的上课方式，并不是按照班级整班在教室上课，而是在较大的敞亮空间里分若干小组进行学习。班的概念变得模糊，更象是全年级是一个大班，分成了很多小组。
+小学阶段贯彻工作室式的上课方式，并不是按照班级整班在教室上课，而是在较大的敞亮空间里分若干小组进行学习。班的概念变得模糊，更像是全年级是一个大班，分成了很多小组。
 
 在Y7-Y8 阶段，每周有两天，下午正常放学时间后，老师会组织学生集体在学校做作业。
 
