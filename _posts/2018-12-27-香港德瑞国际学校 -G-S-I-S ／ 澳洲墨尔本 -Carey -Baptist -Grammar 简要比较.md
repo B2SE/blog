@@ -13,8 +13,11 @@ Description: 明智教育, 辅导，补习，老师，私校，公校, 奖学金
 
 ![](https://farm5.staticflickr.com/4911/46469246781_446e8afe39_o.jpg)
 
+![](https://www.carey.com.au/sites/default/files/basic-page/P3140085.jpg)
+
 ![](https://farm5.staticflickr.com/4831/45556191165_493345f445_o.jpg)
 
+--------------------------------------------------------------------
 香港德瑞国际学校：
 
 ![](https://farm5.staticflickr.com/4899/45745687174_37a81e055e_o.jpg)
