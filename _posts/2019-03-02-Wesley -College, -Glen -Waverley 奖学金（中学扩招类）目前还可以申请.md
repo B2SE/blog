@@ -37,7 +37,7 @@ Wesley College 在墨尔本已经有超过150年的历史，全面育人的理�
 学校的著名标志是雄狮的图案。含义为强大并且智慧。抬起的前腿寓意是：（无所畏惧，）不断前行。
 
 
-![](http://wesleycollege.net/~/media/Images/Logos%20and%20Signatures/Logo%20lion.jpg?w=205&h=153&as=1)
+![](https://www.wesleycollege.edu.au/__data/assets/image/0022/25591/Academic-success-670x450.jpg)
  
 	
 --------
